@@ -1,0 +1,1 @@
+manipulacoes-basicas-imagens
